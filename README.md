@@ -1,0 +1,2 @@
+Lucas Sperati
+Computer Science
