@@ -1,2 +1,0 @@
-Lucas Sperati
-Computer Science
